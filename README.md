@@ -1,5 +1,5 @@
 # chetan123
-This is all about me . JUST CLICK ON README to Know more 
+This is all about me . 
 
 # Hi there 👋, I'm Chetan!
 
