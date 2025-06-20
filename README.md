@@ -1,4 +1,4 @@
-# chetan123
+# chetan
 This is all about me . 
 
 # Hi there 👋, I'm Chetan!
